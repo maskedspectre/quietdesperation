@@ -1,3 +1,3 @@
 # Desperation
 
-A poem. A cry for help.
+A poem. A desperate cry for help.
